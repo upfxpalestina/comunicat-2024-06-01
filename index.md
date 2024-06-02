@@ -1,4 +1,4 @@
-**Comunicat de demandes al Consell de Govern de la UPF:**
+**Comunicat de demandes al Consell de Govern de la UPF**
 
 Escrivim aquest text mesos després de l’inici del genocidi en curs d'Israel a Palestina: després de l'assassinat sistemàtic de més de [36 mil persones](https://www.aljazeera.com/news/longform/2023/10/9/israel-hamas-war-in-maps-and-charts-live-tracker) a la Franja de Gaza, la meitat de les quals són criatures; després de la [fam](https://www.hrw.org/news/2024/04/09/gaza-israels-imposed-starvation-deadly-children) generalitzada produïda intencionadament per part d’Israel com a estratègia de guerra, de les més de 2 milions de persones a la Franja; després de la destrucció total de [zones residencials](https://apnews.com/article/un-report-gaza-destruction-housing-economy-recovery-4f61dcca7db3fd5eb3da5c6a25001e12#) i dels sistemes [sanitaris](https://www.msf.org/strikes-raids-and-incursions-seven-months-relentless-attacks-healthcare-palestine) i [educatius](https://www.aljazeera.com/opinions/2024/5/29/open-letter-by-gaza-academics-and-university-administrators-to-the-world); de la detenció, tortura i execució de metgesses, infermeres, professores, periodistes i altres; i durant la neteja ètnica cada vegada més sagnant de les palestines a les seves llars a Gaza i a la resta dels territoris ocupats. Escrivim aquest text arran de la imposició per part de la [Cort Internacional de Justícia](https://www.icj-cij.org/case/192) de mesures provisionals contra Israel en virtut de la Convenció del Genocidi, i arran de la llista cada vegada més àmplia d'organitzacions internacionals de drets humans, humanitàries i cíviques que estan fent [sonar l'alarma](https://www.amnesty.org/en/latest/news/2024/05/israel-opt-israeli-air-strikes-that-killed-44-civilians-further-evidence-of-war-crimes-new-investigation/) sobre els crims internacionals -massius i a l’alça- comesos per part d'Israel i davant del seu impacte catastròfic en la població palestina. També escrivim aquest text en el context d'informes d'ONGs internacionals com [Amnistia Internacional](https://www.amnesty.org/en/latest/campaigns/2022/02/israels-system-of-apartheid/) i [Human Rights Watch](https://www.hrw.org/report/2021/04/27/threshold-crossed/israeli-authorities-and-crimes-apartheid-and-persecution), i d'ONGs palestines i israelianes, com [Al-Haq](https://www.alhaq.org/cached_uploads/download/2022/12/22/israeli-apartheid-web-final-1-page-view-1671712165.pdf) i [B'Tselem](https://www.btselem.org/publications/fulltext/202101_this_is_apartheid), qui documenten amb proves aclaparadores l'ocupació militar il·legal israeliana de Palestina i el sistema d'apartheid que ha imposat al poble palestí durant els últims 76 anys. I finalment, escrivim aquest text com a part d'un [moviment universitari local i global](https://www.aljazeera.com/news/2024/4/26/are-us-campus-protests-against-israels-war-on-gaza-going-global), d'estudiants, professorat i personal, que ha florit a la nostra ciutat i a tot el planeta. Innombrables universitats arreu del món han estat pressionades per les seves comunitats acadèmiques a assumir i acabar amb la seva complicitat amb la despossessió i l’assassinat del poble palestí, tant històricament com en el moment actual.
 
@@ -16,13 +16,50 @@ Nosaltres, la comunitat de la UPF; no descansarem fins que la nostra institució
 
 **Nosaltres, tots els col·lectius que firmem aquesta petició, tot i que diversos en els nostres objectius i compromisos polítics, signem i donem suport a les demandes exposades prèviament, i instem a la nostra universitat a que les complexi i les faci efectives:**
 
-*El col·lectiu UPF in Solidarity with Palestine*<br>
-*Assemblea Oberta*<br>
+*AEP Ciutadella*<br>
+*Asamblea Oberta per Palestina*<br>
 *Assemblea Ciutadella*<br>
+*Collective UPF in Solidarity with Palestine*<br>
+*Front d'Estudiants*<br>
+*Jovent Repoublicà Jovent*<br>
+*Red Universitaria por Palestina a la UPF*<br>
 *SEPC Ciutadella*<br>
-*RUxP (UPF)*<br>
-*Universitats amb Palestina*<br>
-*Front d’Estudiants*<br>
-*Jovent Republicà*<br>
-*AEP*<br>
-*Time is UP*
+*Time is up*<br>
+*Universitats Amb Palestina*<br>
+
+[Descarregar PDF](comunicat-2024-06-03.pdf)
+
+---
+
+**Letter of demands to the Governing Council of UPF**
+
+We write this text months into Israel’s ongoing genocide in Palestine: following Israel’s systematic killing of more than 36 thousand people in the Gaza Strip, half of whom are children, its intentional starvation of the Strip’s population of over 2 million individuals, its total destruction of residential areas and of the healthcare and educational systems, its detention, torture, and execution of doctors, nurses, professors, journalists and others, and its increasingly bloody ethnic cleansing of Palestinians from their homes in Gaza and in the rest of the occupied territories. We write this text in the wake of the International Court of Justice’s imposition of provisional measures against Israel under the Genocide Convention, and an ever-growing list of international human rights, humanitarian, and civic organizations sounding the alarm loudly over Israel’s massive and rapidly escalating international crimes and their catastrophic impact on the Palestinian population. We also write this text to the backdrop of reports by international NGOs like Amnesty International and Human Rights Watch, and Palestinian and Israeli NGOs, like Al-Haq and B’Tselem, that document with overwhelming evidence Israel’s illegal military occupation of Palestine and the system of apartheid it has imposed on the Palestinian people during the past 76 years. And finally, we write this text as part of a local and global university movement, of students, faculty, and staff, that has risen in our own city and across the planet. Countless campuses have, in the last months, been pushed by their own academic communities to reckon with their complicity in the dispossession and killing of Palestinians, both historically and in the present moment.
+
+While other universities have moved swiftly to cut any academic and economic ties that implicate them in the horrors we are watching in Gaza and throughout Palestine, Universitat Pompeu Fabra has so far failed to position itself clearly as an institution. The UPF community has mobilized itself in repeated protests during the last eight months. Students, faculty and staff have also come together to form the collective UPF in Solidarity with Palestine and to join the Red Universitaria por Palestina, which links 43 universities across Spain. These groups have made it possible for the United Nations Special Rapporteur on the Occupied Palestinian Territories to present her report “the Anatomy of a Genocide” directly to UPF and other universities. They have organized presentations by Palestinian scholars, including a devastating intervention by Dr. Ghassan Abu Sitta on what he witnessed, first-hand of the Israeli atrocities in Gaza while he volunteered there as a surgeon this fall. Despite all of this, UPF’s administration has not seriously engaged with any of the above-mentioned activities. Neither has it taken the necessary steps to suspend its links with complicit Israeli academic institutions and enterprises, or with other corporations that aid the apartheid, war crimes, crimes against humanity, and genocide unfolding in Palestine.
+
+Ahead of the Consell de Govern’s meeting on 4 June 2024, we urge UPF’s governing bodies to act in line with the university’s commitment to human rights and international law, and to uphold its democratic principles and materialize the demands of over 500 students, faculty members, and staff – including UPF Doctor Honoris Causa Angela Davis – who have signed the letter in support of Gaza. To do so, we demand that the university take the following urgent and material steps:
+- Suspend, with immediate effect, its mobility agreements with the following complicit Israeli universities: University of Tel-Aviv, the Hebrew University of Jerusalem, Haifa University, and Reichman University.
+- Commit to not establishing or renewing any mobility agreements with Israeli universities while Israel continues to carry out its attacks on the Palestinian population, both in Gaza and the West Bank, in breach of their obligations as an occupying force.
+- In the context of research consortia funded by the European Union, given UPF’s participation in three Horizon Europe projects that include Israeli institutions or companies:
+	- Ask the European Union for the immediate and precautionary blocking of the participation of Israeli institutions or companies in all projects financed with European funds, in accordance with European treaties and the principles that underpin them.
+	- For as long as the European Union does not take such steps, refrain from participating in any academic or institutional event in which Israeli institutions or companies are involved.
+- In the context of the ARTEMIS Cybersecurity Chair, which includes Oracle, a technology company that directly supports the Israeli military, ask the European Union for the immediate and precautionary blocking of Oracle's participation in this Chair.
+- In the context of the university's accords and agreements with companies that are linked to genocide, apartheid and occupation, suspend, with immediate effect, the cooperative education agreement with HP Printing and Computing Solutions.
+
+We, the UPF community, will not rest until our institution rids itself of agreements that tie us directly to the horrors we are witnessing in Gaza, and to the broader subjugation of the Palestinian people. We refuse to accept that UPF lags behind, implicating us all in unspeakable violence, as we watch colleagues and fellow students throughout Catalonia, Spain, and the world move their universities toward ethical commitments.
+
+**We, the undersigned collectives, while diverse in our broader political commitments, co-sign the above demands, and urge the university to comply with them:**
+
+*AEP Ciutadella*<br>
+*Asamblea Oberta per Palestina*<br>
+*Assemblea Ciutadella*<br>
+*Collective UPF in Solidarity with Palestine*<br>
+*Front d'Estudiants*<br>
+*Jovent Repoublicà Jovent*<br>
+*Red Universitaria por Palestina a la UPF*<br>
+*SEPC Ciutadella*<br>
+*Time is up*<br>
+*Universitats Amb Palestina*<br>
+
+[Download PDF](./letter-2024-06-03.pdf)
+
