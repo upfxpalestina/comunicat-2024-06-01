@@ -17,15 +17,15 @@ Nosaltres, la comunitat de la UPF; no descansarem fins que la nostra institució
 **Nosaltres, tots els col·lectius que firmem aquesta petició, tot i que diversos en els nostres objectius i compromisos polítics, signem i donem suport a les demandes exposades prèviament, i instem a la nostra universitat a que les complexi i les faci efectives:**
 
 *AEP Ciutadella*<br>
-*Asamblea Oberta per Palestina*<br>
+*Assemblea Oberta*<br>
 *Assemblea Ciutadella*<br>
-*Collective UPF in Solidarity with Palestine*<br>
+*El col·lectiu UPF in Solidarity with Palestine*<br>
 *Front d'Estudiants*<br>
-*Jovent Repoublicà Jovent*<br>
+*Jovent Republicà*<br>
 *Red Universitaria por Palestina a la UPF*<br>
 *SEPC Ciutadella*<br>
-*Time is up*<br>
-*Universitats Amb Palestina*<br>
+*Time is UP*<br>
+*Universitats amb Palestina*<br>
 
 [Descarregar PDF](comunicat-2024-06-03.pdf)
 
@@ -51,15 +51,15 @@ We, the UPF community, will not rest until our institution rids itself of agreem
 **We, the undersigned collectives, while diverse in our broader political commitments, co-sign the above demands, and urge the university to comply with them:**
 
 *AEP Ciutadella*<br>
-*Asamblea Oberta per Palestina*<br>
+*Assemblea Oberta*<br>
 *Assemblea Ciutadella*<br>
-*Collective UPF in Solidarity with Palestine*<br>
+*El col·lectiu UPF in Solidarity with Palestine*<br>
 *Front d'Estudiants*<br>
-*Jovent Repoublicà Jovent*<br>
+*Jovent Republicà*<br>
 *Red Universitaria por Palestina a la UPF*<br>
 *SEPC Ciutadella*<br>
-*Time is up*<br>
-*Universitats Amb Palestina*<br>
+*Time is UP*<br>
+*Universitats amb Palestina*<br>
 
 [Download PDF](./letter-2024-06-03.pdf)
 
