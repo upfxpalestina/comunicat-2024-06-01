@@ -19,9 +19,12 @@ Nosaltres, la comunitat de la UPF; no descansarem fins que la nostra institució
 *AEP Ciutadella*<br>
 *Assemblea Oberta*<br>
 *Assemblea Ciutadella*<br>
+*Colla castellera Trempats UPF*<br>
 *El col·lectiu UPF in Solidarity with Palestine*<br>
 *Front d'Estudiants*<br>
+*Intersindical UPF*<br>
 *Jovent Republicà*<br>
+*Post-Crash UPF*<br>
 *Red Universitaria por Palestina a la UPF*<br>
 *SEPC Ciutadella*<br>
 *Time is UP*<br>
@@ -53,9 +56,12 @@ We, the UPF community, will not rest until our institution rids itself of agreem
 *AEP Ciutadella*<br>
 *Assemblea Oberta*<br>
 *Assemblea Ciutadella*<br>
+*Colla castellera Trempats UPF*<br>
 *El col·lectiu UPF in Solidarity with Palestine*<br>
 *Front d'Estudiants*<br>
+*Intersindical UPF*<br>
 *Jovent Republicà*<br>
+*Post-Crash UPF*<br>
 *Red Universitaria por Palestina a la UPF*<br>
 *SEPC Ciutadella*<br>
 *Time is UP*<br>
